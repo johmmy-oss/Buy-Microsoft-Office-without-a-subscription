@@ -1,2 +1,2 @@
-# Buy-Microsoft-Office-without-a-subscription
-Buy Microsoft Office without a subscription
+Within the Subscription period of Office at office.com/setup, you are going to wind up paying over $60 more if you go for the monthly subscription. The only advantage of moving with the subscription-based model is that it permits you to install the Office application on more than one computer simultaneously. But to me personally and I guess this is not worth the extra price. office.com/setup or microsoft.com
+https://office-settup.com/
